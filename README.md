@@ -1,2 +1,2 @@
 # Ruchi_demo
-Author - Ruchi Tiwari
+Author - Ruchi (Tiwari Family)
